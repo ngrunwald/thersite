@@ -1,0 +1,37 @@
+---
+author: John Doe
+date: 14/07/2011
+layout: post
+title: V&eacute;rit&eacute; en de&ccedil;&agrave; des Pyr&eacute;n&eacute;es.doc
+---
+Les Indignés campent à la Puerta del Sol depuis le 15 mai. Ils réclament une vraie démocratie et refusent la démocratie telle qu’elle est. Le 22 mai, le Parti populaire a recueilli 37% des suffrages[[a]](#cmnt1) exprimés aux élections locales, et la gauche a perdu Barcelone et Séville. Dans ces villes, la droite la plus conservatrice et la plus décomplexée va régner sans partage. 
+
+ 
+
+Malgré tout, on ne peut s’empêcher de ressentir la plus grande sympathie pour les Indignés. L’Espagne souffre cruellement de la crise, et en particulier les jeunes, frappés par le chômage, la précarité, la misère. Les citoyens ne se retrouvent plus dans les deux partis majoritaires qui sont censés les représenter. En dépit de mesures courageuses dans l’ordre du symbolique et du sociétal, le gouvernement Zapatero, avant et après la crise, ne s’est guère écarté de la doxa sociale-libérale sur les questions économiques. Les hommes politiques en général semblent si éloignés du pays réel que la victoire ou la défaite d’un camp ou d’un autre ne semble pas intéresser les Indignés. 
+
+L’œuvre du gouvernement Aznar, consistant à dépouiller les pauvres des quelques armes dont ils disposaient au profit des forts, n’a pas été fondamentalement remise en cause. Comme ailleurs, le parti socialiste a fini par intégrer en profondeur l’idéologie libérale et ne défend quasiment plus les intérêts des faibles que pendant les campagnes électorales, et encore, avec une gêne de plus en plus visible. L’arrivée de la crise, qui remet pourtant profondément en cause cette idéologie, a tellement dévasté le pays que la politique, comme en Grèce, se résume désormais à l’évitement de catastrophes encore plus considérables. Nulle remise en question ne peut susciter l’espoir que cet échec soit à l’origine d’une quelconque amélioration. Pourquoi ? La sidération d’un tel désastre, l’urgence, sans doute ; mais aussi l’incapacité à détruire l’échafaudage idéologique qui a constitué la colonne vertébrale de la gauche moderne depuis les années 80. Brûler ce qu’on a adoré est difficile ; il est plus difficile encore de brûler l’idole dont on a été le grand-prêtre...
+
+ 
+
+Comment expliquer cette incapacité ? Le bipartisme, ce sommeil de la raison politique, a engendré des monstres : des partis qui, au lieu de représenter une idéologie, une classe sociale, un ensemble de valeurs permettant d’aborder les différents enjeux politiques, ne représentent plus qu’eux-mêmes. L’idéologie, l’ancrage sociologique, au lieu d’être à l’origine du positionnement politique dans le discours des partis, est devenu un pur moyen au service de la seule véritable fin : la réélection. Or cette dernière dépend bien plus de l’investiture que des électeurs, ces derniers étant liés par le vote utile à un parti majoritaire dans leur camp, ou à ses acolytes, qui poursuivent les mêmes objectifs, et finalement n’en constituent que des « courants » externes.
+
+Constitués de professionnels de la politique, d’élus, de futurs élus, de collaborateurs d’élus, de candidats frustrés, les partis sont devenus des monades, qui n’interagissent plus avec l’extérieur que pour demander une fois de temps en temps un vote. L’électeur, au lieu d’être un autre soi-même, un égal, pour le militant, est devenu la cible, l’objet d’une stratégie de marketing. Et encore… La puissance des rivalités de personnes, de moins en moins ocultée, en vient à remplacer le discours construit et apprêté vers l’électeur, et à en faire le simple spectateur involontaire et atterré de luttes picrocholines lamentables. 
+
+ 
+
+Face à cette déréliction, on ne peut que comprendre la tentation « égyptienne » des Indignés, d’une logique qui est clairement insurrectionnelle, même si elle est pacifique. Pourtant, elle ne résiste pas lontemps au crible de la critique. Ce qui justifie l’insurrection, ce qui la rend nécessaire, c’est l’interdiction par le système politique en place d’exercer ses droits civiques et politiques. Le fait que la réalité actuelle des partis soit insatisfaisante, ou même que certaines règles constitutionnelles, souvent à l’origine de cette réalité, soient nuisibles à la démocratie représentative, ne doit pas occulter le fait que le citoyen espagnol, comme le citoyen français, a parfaitement le droit dans son pays de voter pour un parti non majoritaire ou de se présenter aux élections. S’il n’est pas satisfait du paysage politique, il a la possibilité d’agir sur ce dernier, qui n’est pas réservé comme naguère en Egypte ou en Tunisie aux sicaires du pouvoir. 
+
+L’Espagnol de la Puerta del Sol a tort parce qu’il se comporte comme un consommateur. Il est insatisfait de « l’offre politique » (expression terrible à entendre), qui ne satisfait pas sa demande. Habitué à la passivité, ayant intériorisé sa différence de nature avec l’homme politique conçu comme un marchand de soupe politique, il le boycotte quand sa soupe est vraiment trop frelatée. Au lieu de racheter la boutique ou d’en ouvrir une autre, il la boude et s’enferme dans une logique nihiliste en se privant de soupe. Il refuse de s’inscrire dans une réalité politique qui, elle, de son côté, ne se privera pas de se faire sentir avec violence. Il n’est d’ailleurs pas étonnant que ce mouvement ait éclot dans un des pays où l’engagement politique, au sens large, a sans doute eu du mal à se remettre de trente-cinq ans de glaciation franquiste et d’une démocratisation à une époque où les mobilisations collectives commençaient à être sérieusement passées de mode.
+
+ 
+
+En réalité, le citoyen doit au contraire se réapproprier la politique et les outils qui depuis plus d’un siècle constituent les pièces maîtresses de sa mécanique : les partis. Plutôt que de rejeter ces derniers en bloc, il doit en fonder de nouveaux, ou si cela semble plus efficace, il doit se réapproprier les partis existants, dans lesquels sa parole est au moins aussi légitime que celle des gérants – pardon, des gestionnaires – actuels. Ils doivent mettre en tête de leurs priorités des réformes constitutionnelles (en France, l’élection de l’Assemblée Nationale à la proportionnelle, l’inversion du calendrier des élections) qui stimulent la cohérence idéologique des partis majoritaires, facilitent l’expression libre de toutes les positions et brise enfin le culte de la sacro-Synthèse.
+
+Pour ma part, je me sens plus socialiste que bien des détenteurs de la carte du parti du même nom. Après de longues années d’une attitude trop facile d’observateur extérieur, j’ai pris conscience que j’avais autant de légitimité à entrer au Parti Socialiste et à y défendre ma réflexion que n’importe qui. J’ai pris conscience que c’était la seule façon efficace d’avoir une influence, même minime, sur la politique telle qu’elle se fait, au lieu de la subir par le seul exercice incomplet du vote. Je n’entre pas dans ce parti comme on entre dans une corporation, comme un apprenti qui doit servir ses maîtres et appartenir aux Frères de la cote (de popularité). J’y entre comme on entre dans une association libre d’égaux se rassemblant autour d’une tradition de pensée assez riche pour inspirer des décennies de politique future. Tous les citoyens intéressés par la politique devraient faire de même. Cela seul pourrait sauver les partis non démagogiques de la catastrophe espagnole. Cela seul pourra sauver la France des châteaux en Espagne d’une indignation pure et sans suite.
+
+ 
+
+
+
+
